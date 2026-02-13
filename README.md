@@ -1,16 +1,16 @@
 # 💫 About Me:
 🔭 A : Aditya RB adalah seorang YouTuber yang sering melakukan live streaming konten Roblox. Dia berasal dari Indonesia dan juga sering mengadakan *giveaway* ROBUX melalui Discord. Kamu bisa mengikuti Aditya di beberapa platform sosial media:
 
-- **Instagram**: [Rakan Aditya](https://www.instagram.com/rakanadityaofficial)
-- **Twitter**: [Rakan Aditya](https://twitter.com/RakanadityaY)
+- **Instagram**: [rakanadityaofficial](https://www.instagram.com/rakanadityaofficial)
+- **Twitter**: [RakanadityaY](https://twitter.com/RakanadityaY)
 - **Facebook**: [Rakan Aditya Official](https://www.facebook.com/RakanAdityaOfficial.ID)
 - **Steam**: [Rakan Aditya](https://steamcommunity.com/id/RakanAditya)
-- **TikTok**: [Rakan Aditya](https://www.tiktok.com/@rakanadityaofficial)
-- **Twitch**: [Rakan Aditya](https://www.twitch.tv/rakanaditya)
+- **TikTok**: [rakanadityaofficial](https://www.tiktok.com/@rakanadityaofficial)
+- **Twitch**: [rakanaditya](https://www.twitch.tv/rakanaditya)
 
-Jangan lupa dukung dia di [Trakteer](https://trakteer.id/RakanAditya) atau [Saweria](https://saweria.co/donate/RakanAditya). :video_game::space_invader:⁴¹²¹³¹⁴¹⁵¹⁶¹⁷¹⁸¹⁹
+Jangan lupa dukung dia di [Trakteer](https://trakteer.id/RakanAditya) atau [Saweria](https://saweria.co/donate/RakanAditya).
 
-**Link** Aditya RB - YouTube. https://www.youtube.com/c/AdityaRB.
+**Link** Aditya RB - YouTube. [Trakteer](https://www.youtube.com/c/AdityaRB)
 
 
 ## 🌐 Socials:
