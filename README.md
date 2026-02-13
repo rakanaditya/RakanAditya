@@ -10,7 +10,7 @@
 
 Jangan lupa dukung dia di [Trakteer](https://trakteer.id/RakanAditya) atau [Saweria](https://saweria.co/donate/RakanAditya).
 
-**Link** Aditya RB - YouTube. [Trakteer](https://www.youtube.com/c/AdityaRB)
+**Link** Aditya RB - YouTube. [YOUTUBE](https://www.youtube.com/c/AdityaRB)
 
 
 ## 🌐 Socials:
